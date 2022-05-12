@@ -4,4 +4,5 @@ India is a Democracy.
 America is a democracy.
 North Korea is not a democracy.
 -+-+-+-+-+-+-+-+-+-+-+-+-+-+-+-+-+-
-I am one who is the one?
+
+I am the one who is no one.
